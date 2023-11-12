@@ -1,4 +1,4 @@
-# Doug Spardel Skills & Knowledge Base ⚡⚡⚡
+# Doug's Skills & Knowledge Base ⚡⚡⚡
 
 ## Financial Services
 - Instructional Design
